@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @start-anew - Also known as Jimmy!
+- 👀 I’m interested in - Pretty much everything at the moment!
+- 🌱 I’m currently learning - Everything!
+- 💞️ I’m looking to collaborate on - Anything!
+- 📫 How to reach me - Either through here on GitHub or email via start-anew@outlook.com
